@@ -24,7 +24,6 @@ Descarte inadequado de resíduos, causando poluição, entupimento de rios, impa
 - Plástico
 - Papel
 - Vidro
-- Orgânico
 
 ## 🚀 Conclusão
 
